@@ -6,7 +6,7 @@ LIKES: Pink, Black, Cute and Grungy, Sanrio, Italian and Asian Food.... Mostly F
 
 DISLIKES/DNI: Anyone that isn't a decent human being (P⭒do, R⭒scist, H⭒mophobic, ETC.), Overheating, Anchovies, Raw Veggies, Touch Trigger or Phantom Touch People, MINORS UNDER 17, Close minded thinking, Ankle socks
 
-FANDOMS: Super Mario, Sonic the Hedgehog, SMG4, Creepypasta, Sanrio, TokiDoki, Carebears, Romance Animes, Chainsaw Man, My Hero Academia, Demon Slayer, My Little Pony, Melanie Martinez, Warframe, DDLC, FNAF, Vocaloid, FNF, There's way too many to list them all just ask me man
+FANDOMS: Super Mario, Sonic the Hedgehog, SMG4, Creepypasta, Sanrio, TokiDoki, Carebears, Romance Animes, Chainsaw Man, My Hero Academia, Demon Slayer, My Little Pony, Melanie Martinez, Gorillaz, Warframe, DDLC, FNAF, Vocaloid, FNF, There's way too many to list them all just ask me man
 
 «────── « ⋅ʚ♡ɞ⋅ » ──────»
 
