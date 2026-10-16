@@ -1,4 +1,4 @@
-Julia/Koneko | 06.21.02 | Taken ♥︎
+Julia/Koneko | 06.21.02 | INFP ♥︎
 
 «────── « ⋅ʚ♡ɞ⋅ » ──────»
 
